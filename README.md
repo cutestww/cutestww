@@ -1,3 +1,3 @@
 - hi, I’m @cutestww (or dice10)
-- i made this because i wanna try modding
+- i made this because i wanna try making a fabric mod
 - if you found your way here, congrats! why though
