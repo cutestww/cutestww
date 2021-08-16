@@ -1,0 +1,3 @@
+- hi, I’m @cutestww (or dice10)
+- i made this because i wanna try modding
+- if you found your way here, congrats! why though
